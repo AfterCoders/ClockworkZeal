@@ -1,6 +1,6 @@
 # Characters
 - Sakuya
-	- Lass of Truth
+	- Lasso of Truth
 - Lucio
 	- Eden
 - Lightning
