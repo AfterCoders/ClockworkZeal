@@ -1,0 +1,29 @@
+# Characters
+- Sakuya
+	- Lass of Truth
+- Lucio
+	- Eden
+- Lightning
+	- Soul Gem
+- Reverse Flash (Thawne)
+	- Time Medallion
+- Genos
+	- Philosopher's Stone
+- Reg
+	- Thors Quartz
+- Donquixote Doflamingo (Doffy)
+	- Ring of Lucii
+- Diavolo (King Crimson)
+	- Time Medallion
+- Mythra
+	- Invisibility Cloak
+- Malos
+	- Terrain Extender
+- Big Head
+	- Body Armor
+- Kenshi
+	- Over the Top
+- Midoriya Izuku (Deku)
+	- Time Medallion
+- Greninja 
+	- Thors Quartz
